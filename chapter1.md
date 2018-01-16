@@ -1,4 +1,4 @@
-# January 2018
+# 2018
 
 The year 2017 past so fast before I know it...
 
