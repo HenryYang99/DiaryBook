@@ -10,5 +10,5 @@ Here comes the 2018.
 * I hope I can do a good job in my startups company and reach the target of making a million yuan sales.
 * I hope I can grab the opportunity to pursue my lovely and beloved girl,  it's not easy to meet you in such a big world, after all.
 
-_**Life is touch on the whole, but I firmly believe that if we try our best to pursue joys and dreams little by little, life will pay off in the end.**_
+_**Life is tough on the whole, but I firmly believe that if we try our best to pursue joys and dreams little by little, life will pay off in the end.**_
 
