@@ -14,7 +14,7 @@
 
 ## **Self Introduction:**
 
-My name is Gang Yang, Henry Yang in English, born in 1999, a college student in Nanjing University, major in computer science and technology. My life consist of two main parts: coding and eating XD. I have lots of hobbies, coding, cooking, reading,  watching movies and so on. I write this diaries mean to alarm myself and form a good habit. Hope your gays a good day.
+My name is Gang Yang, Henry Yang in English, born in 1999, a college student in Nanjing University, major in computer science and technology. My life consist of two main parts: coding and eating XD. I have lots of hobbies, coding, cooking, reading,  watching movies and so on. I write this diaries meaning to alarm myself and form a good habit. Hope your gays a good day.
 
 -- Yours Henry Yang
 
