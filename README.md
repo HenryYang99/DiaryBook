@@ -1,6 +1,6 @@
 # **Henry Yang's Diaries**
 
-##### _Hello, here is Henry Yang's Diaries. This diaries is designed note down my daily life as well as some significant moments for me._
+##### _Hello, here is Henry Yang's Diaries. This diaries is designed to note down my daily life as well as some significant moments for me._
 
 ##### _This diaries may include below contents: _
 
@@ -10,7 +10,7 @@
 
 3.Some experiences and introductions of coding.
 
-4.Some sharing of Chinese culture including Chinese Culinary, Chinese Poems and so on.
+4.Some sharings of Chinese culture including Chinese Culinary, Chinese Poems and so on.
 
 ## **Self Introduction:**
 
